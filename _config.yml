@@ -1,2 +1,4 @@
-layout: minimal
+header:
+  overlay_image: assests/hi.jpg
+
 theme: jekyll-theme-cayman
