@@ -1,7 +1,6 @@
-
-# Crumble dis Cookie
-
 ![](assets/hi.jpg)
+
+## Crumble dis Cookie
 
 Seriously, just think about that phrase for a little bit, then say it a lot but each time switch at least the pace, tone, your body expression. This has a point, at least it does in my head, so I can wait till you are done. Mind blown, mine is! Maybe not, but if you giggled, love cookies and are a decent person let’s crumble. If you don’t like cookies, don’t eat cookies, are a nazi, and/or a shit person then crumble dis fucking cookie. I am not a monster though, if eating a cookie threatens your life or an actual cookie monster mentally scared you, then please understand that I want you to stay. Replace Cookie with what you Crumble, because this is an idea. Exactly what this idea is though is something I have to crumble on.
 
