@@ -1,4 +1,4 @@
 header:
-  overlay_image: assests/hi.jpg
+  overlay_image: site/assets/hi.jpg 
 
 theme: jekyll-theme-cayman
